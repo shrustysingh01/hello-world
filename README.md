@@ -13,7 +13,7 @@ Just another repository
 12. Little things make big days.
 13. It’s going to be hard, but hard does not mean impossible.
 14. Don’t wait for opportunity. Create it.
-16. The key to success is to focus on goals, not obstacles.
-15. Sometimes we’re tested not to show our weaknesses, but to discover our strengths.
+15. The key to success is to focus on goals, not obstacles.
+16. Sometimes we’re tested not to show our weaknesses, but to discover our strengths.
 17.Dream it. Believe it. Build it.
 
